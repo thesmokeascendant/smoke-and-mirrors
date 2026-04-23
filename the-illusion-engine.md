@@ -137,3 +137,28 @@ Under these conditions, individuals now model themselves after abstractions: cro
 standards they did not create, expectations they did not conciously coose. 
 This is often mistaken for self expression, when in reality it is allignment. The distinction is subtle but 
 significant - one emerges from internal clarity, the other from external pressure.
+this dynamic does not exist in isolation, it is shaped by the historical and structural context that we inherit.
+To be born in the early 21st century is to enter a world already layered with the unresolved outcomes of 
+previous eras. the systems, institutions, and cultural assumptions that organise modern life were not created 
+in avacum. They are the results of earlier attempts to establish order, meaning and control. Over time, 
+however, these systems evolve. Their original intentions become secondary to their continued operation.
+Efficiency replaces reflection. Growth replaces purpose. In the end what remains is a world that functions, but 
+not always in alignment with the individuals within it. this is where distortion deepens. Now we do not merely
+live within these inherited beliefs, we often identify with them. we defend them, participate in them, and
+derive meaning from them, even when they no longer serve the purpose for which they were originally formed.
+The familiarity of the system becomes its own justification. Questioning it begins to feel unnecessary, even
+disruptive. But familiarity is not the same as truth. The social smoke operates by maintaining this quiet 
+continuity. It allows outdated assumptions to persist under modern Conditions. It preserves patterns long after 
+their context has changed. And because it is everywhere - embedded in language, media, norms, and expectations - 
+it is rarely experienced as influence. It is experienced as reality. 
+Now this does not mean that all systems are inherently flawed or must be rejected outright. Many of them 
+continue to provide structure, coordination, and stability. But it does duggest that unexamined trust carries 
+its own risk. Systems that were once built in search of meaning can, over time, become optimised for entirely 
+different outcomes. and when that shift goes unnoticed, the individual is left navigating a framework that may 
+no longer reflect their needs, values or reality. To see through social smoke is not to detatch from society,
+but to recorgnise the difference between perception and absorption. It is to understand that what is widely 
+accepted is not always deeply true, and that clarity in such environments requires more than agreement. It 
+requires awareness. 
+
+INVISIBLE SCRIPTS
+
