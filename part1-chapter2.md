@@ -1,50 +1,53 @@
 THE PERMISSION LIE
 
-one of the deepest, most subtle prisons we live in is the belief that there is nothing we can do about 
-situations. we cannot act, choose, or become without some permission. We are taught this early, without 
-words sometimes, simply through tone, expectation and example, that our desires, our instincts, our 
-sense of self must be filtered through approval of some others - a parent, a teacher, the community, 
-and later on, even the imagined judgement of our bank account balances.
-When I finished secondary school few years ago, so many things were changing fast. I beleived i knew things about the 
-world because i have actually learnt those things from school ond online. My waec result has 9 credits.
+one of the deepest, most subtle prisons i live in is the belief that there is nothing i can do about 
+situations. i cannot act, choose, or become without some permission. i was taught this early, without 
+words sometimes, simply through tone, expectation and example, that my desires, instincts, or 
+sense of self must be filtered through approval of some others - a parent, a teacher, the community,
+later on even the imagined judgement of our bank account balances.
+When I finished secondary school few years ago, so many things were changing fast. I already knew things about the 
+world because i have actually learnt those things (from school ond online). My waec result had 9 credits, and
 i had been exposed to blockchain technology and other basic computing. yet there seemed to be not much 
-i could do about the situation right. When it became obvious that so many things i wanted wont be done simply 
-because i had no money, all i wanted to do was get into IT and the world of computing. not state service or 
+i could do about the situation. it became obvious that so many things i wanted wont be done simply 
+because i had no money, and  all i wanted to do was get into IT and the world of computing, not state service or 
 any thing like that. But in the streets around me, computing has already been mystified into criminology by 
-the majority of people who get into it to make it quick. Now my family cant set me up with a laptop because 
-they do not believe i will do anything useful with it. Its okay, i will have to postpone that dream for now 
-and get into something else that will fund the infrastructure. Meanwhile most of the people i finished secondary
- school with are already writing jambs, getting into schools that dont offer the causes they never planned 
-to take. The lie is inherited, quietly over generations. There is nothing else we can do. its painful because many other place in 
-the world, things seem okay, especially in the media. but even my own place dont seem okay. the difficulty 
-and manual repetition of things. it is like everything is stuck. I knew nation state system and 
-human right is fucked in my country, it is true,  i noticed it. people talked about everything as always. 
-but when it was time to do something about it, they all hid behind and waited on the government to do it for them.
-the lie is generally that there is nothing we can do about things. that someone else has to do our things 
-for us. and even when it is is who should do it, we still need permission to go ahead with things. 
-i need money for basic survival because the system doesnt provide the infrastructures for me, so it is a 
-basic need. now i do not understand that i have to spend an unimaginable amount of time in some unspeakable 
-environmental conditioning just to get the same certificates already owned by 10s of millions of people who
-suffer everyday because the system to validate it is currently in question. i do not see how it even answers 
-the poverty question. if the certificates dont matter, why not use the same amount of time to specialise into 
-something that we can actually control? i sure had questions. the ile is carried not just inthe pauses between 
-words, in the expressions that signal disappointment, in the rules of who we are allowed to be. By the time we 
-gain ability to reflect conciously, it is already ecnoded in our habits, our hesitations, our very sense of probability.
-we bagin to consult, measure and defer before we even act. not because the world requires it, but because our
-minds have been conditioned to to demand it. 
-The consequense is profound. a life lived under constant unseen surveillance, where every choice is weighed 
-against imagined judgement. People surrender their own agency and call it prudence. they shrink themselves and 
-call it respect. They defer their instincts and call it patience. And the cost is subtle but relentless. the slow 
-erosion of self trust, the persistent whisper that "I am not enough until i do this or that." This is the permission lie.
-The idea that life itself is conditional, that freedom must be earned externally before it can be claimed internally.
-Yet the truth is simpler, though harder to accept. no one can grant you the right to live your life. That right 
-exists before approval. it exists by nature. it exists simply because i exist. The problem is that i often forget this.
-We wait. We hesitate. We rehearse and second-guess, as though some external authority must nod before the next 
-step can be taken. And in the waiting, we live half-lives, small lives, or borrowed lives. We inherit dreams we 
-did not choose, patterns we did not write, scripts we did not approve—and we call them reality.
-This chapter traces the invisible cords of that lie, show how it governs behavior without consent, and reveal 
-how the quiet rebellion of self-recognition begins. Because the first step toward freedom is understanding that 
-the only permission you ever need is the one you give yourself.
+the majority of people who get into it to make it quick. Now my family would not set me up with a laptop because 
+they did not believe i will do anything useful with it. it is understandable because where i am from, the 
+entire support system is usually the family, not govenment. this means that the line between getting things done 
+and not getting things done, is usually very thin. this creates the exixtent pressure to make money individually, 
+and to make enough of it. i had no real skillset. Its okay, i had to postpone that dream till half a decade later
+to get into something else that will fund that infrastructure. Meanwhile most of the people i finished secondary
+school with were already writing jambs, getting into schools and taking courses they never planned to take. they 
+thought they didnt have an option - at least it's better than rewriting jamb for years, trying to get your desired 
+course, or worse, not having a good waec to start with. common as these names sound, entire destinies depend on them 
+for education. The lie is inherited, quietly over generations. That there is nothing else we can do. its painful 
+because many other place in the world, things seem progressive. but my own place don't seem okay. the difficulty 
+and manual repetition of things. it is like everything is stuck. I know nation state system and human right is 
+fucked in my country, that one is true, people talk about it always. but when it was time to do something about it, 
+they all hide behind and waited on the government to do it for them. the lie is generally that there is nothing 
+we can do about things. that someone else has to do our things for us. and even when it is clear that we should 
+do it, we still need permission to go ahead with things. i needed money for basic survival because the system 
+didn't provide the infrastructures for me, so it is a basic need. now i do not understand that i have to spend 
+an unimaginable amount of time in some unspeakable environmental conditioning just to get the same certificates 
+already owned by 10s of millions of people who currently suffer everyday because the system to validate it is 
+in question. i do not see how it even answers the poverty question. why not use the same amount of time to specialise 
+into something that we can actually control? i sure had questions. and as i tried for answers, all i found was more 
+questions, and silence. the lie is carried not just in the pauses between words, in the expressions that signal 
+disappointment, in the rules of who we are allowed to be. By the time we gain ability to reflect conciously, 
+it is already ecnoded in our habits, our hesitations, our very sense of probability. we consult, measure and defer 
+before we even act. The consequense is profound. a life lived under constant unseen surveillance, where every 
+choice is weighed against imagined judgement. People surrender their own agency and call it prudence. they shrink 
+themselves and call it respect. They defer their instincts and call it patience. And the cost is subtle but relentless. 
+the slow erosion of self trust, the persistent whisper that "I am not enough until i do this or that." This is the 
+permission lie - the idea that life itself is conditional, that freedom must be earned externally before it can 
+be claimed internally. But the truth is simpler, though harder to accept. no one can grant you the right to live 
+your life. That right exists before approval. it exists by nature. it exists simply because i exist. The problem 
+is that i often forget this. i wait. We hesitate. We rehearse and second-guess, as though some external authority 
+must nod before the next step can be taken. And in the waiting, we live half-lives, small lives, or borrowed lives. 
+We inherit dreams we did not choose, patterns we did not write, scripts we did not approve — and we call them 
+reality. This chapter traces the invisible cords of that lie, show how it governs behavior without consent, and 
+reveal how the quiet rebellion of self-recognition begins. Because the first step toward freedom is understanding 
+that the only permission you ever need is the one you give yourself.
 
 How Society Trains People to Wait
 

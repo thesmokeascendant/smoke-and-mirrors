@@ -1,7 +1,6 @@
 THE FRAGMENTED SELF
 
-You are not one person.
-Not consistently.
+You are not one person. Not consistently.
 Not completely.
 Not in the way you assume.
 You are a collection.

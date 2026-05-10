@@ -193,7 +193,6 @@ and what was never truely mine to bigin with? Because the moment something becom
 absolute. And in the space - between what was given and what is chosen - something else is possible. 
 Not a complete escape from influence, but a more concious participation in it.
 
-THE FEAR BEHIND THE ILLUSION
 
 Beneath every distortion, every softened truth, every carefully constructed interpretation. There is something 
 quieter holding it in place. Fear. It is not the loud, visible kind - the subtle instinctively resistance that 
